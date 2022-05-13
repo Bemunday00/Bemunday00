@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Bemunday00
-- 👀 I’m interested in ...listen to music
+- 👀 I’m interested in movie, music and A walk to see the city
 - 🌱 I’m currently learning ...english
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
